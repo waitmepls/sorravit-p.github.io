@@ -1,2 +1,2 @@
-# sorravit-p.github.io
+# waitmepls.github.io
 My personal portfolio
